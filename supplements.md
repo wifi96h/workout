@@ -5,4 +5,4 @@ Wrecked – Huge Supplements
 Creatine Monohydrate - Optimum Nutrition (ON)
 Nature Made Multi + Omega 3 - Nature Made
 
-# I feel like he didnt even test ouit to teach this module
+# He's literally seeing this for the first time
